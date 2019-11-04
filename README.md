@@ -28,7 +28,9 @@
  Twitter :- https://twitter.com/yogeshpatelios 
  
  Quora :- https://www.quora.com/profile/YogeshPateliOS 
+ 
  Instagram :- https://www.instagram.com/yogeshpatelios/  
+ 
  If you would like to donate :- https://www.paypal.me/YPiOS  
  All Done Dosto..
  Thank You For Your Support :-)
